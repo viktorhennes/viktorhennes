@@ -1,4 +1,4 @@
-Hello, I'm Victor Hennes ✌️
+Hello, I'm Viktor Hennes ✌️
 Graphic Designer
 
 <!---
